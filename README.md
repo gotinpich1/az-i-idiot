@@ -1,1 +1,1 @@
-# az-i-idiot
+# vesko i edin tapanar
