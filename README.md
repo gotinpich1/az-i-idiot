@@ -1,1 +1,1 @@
-# vesko i edin tapanar
+# az i veso
